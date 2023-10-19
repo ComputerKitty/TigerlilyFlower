@@ -1,5 +1,5 @@
 - Hi, I’m @TigerlilyFlower!
-- I like toh,amphibia,helluva boss,the amazing digital circus,cookierun and bluey
+- I like toh,amphibia,helluva boss,cookierun and bluey
 - wanna meet me? i'm on bud and ponytown
 - i'm Hispanic
 - i'm a gus and bluey kinnie
