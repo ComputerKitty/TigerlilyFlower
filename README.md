@@ -8,4 +8,4 @@
 - my favorite dog breeds are cattle dogs , akitas, and pitbulls (but all dogs are cute)
 - i'm on bud,ponytown,ca.i ,wildcraft and cookie run kingdom.
 - i make edits with capcut and i draw with ibispaint
-- 
+- warrior cats fan!!🐾🐈‍⬛
